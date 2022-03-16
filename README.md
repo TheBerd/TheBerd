@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @TheBerd
+- 👀 I’m interested in You know
+- 🌱 I’m currently learning
+- 📫 How to reach me : Twitter @BredDuke
